@@ -1,5 +1,5 @@
 # 💫 About Me:
-Data Analyst | Business Analyst | Power BI Analyst
+Data Analyst | Business Analyst | Power BI Analyst |
 
 
 ## 🌐 Socials:
